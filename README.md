@@ -6,6 +6,8 @@
 
 [【Nu1L】祥云杯](./祥云杯_Nu1L.pdf)
 
+[【EDI安全】祥云杯wp](https://mp.weixin.qq.com/s/A4UQ4o7RsO9Uy37bsIoahg)
+
 # Misc
 
 ## 到点了
